@@ -1,2 +1,2 @@
 # Trollhack_CLEAN
-no troll fucking your pc Xaro sugma dik
+clean and safe version of the legendary and beloved trollhack put me inside skid list 
